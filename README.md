@@ -1,2 +1,0 @@
-# Vasyuk_Praktika
-
